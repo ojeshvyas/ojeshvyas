@@ -5,6 +5,8 @@
 
 E-mail: vyasojesh@gmail.com
 
+Linkedin: https://www.linkedin.com/in/ojesh-vyas/
+
 Instagram: ojeshvyas
 
 <!---
