@@ -2,7 +2,9 @@
 - 👀 I’m interested in data science and machine learning
 - 🌱 I’m currently pursuing Msc in Data Science
 - 📫 How to reach me:
+
 E-mail: vyasojesh@gmail.com
+
 Instagram: ojeshvyas
 
 <!---
